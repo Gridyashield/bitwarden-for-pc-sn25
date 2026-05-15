@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Bitwarden for PC | Bitwarden for Windows extension with Bitwarden for PC | Bitwarden for Windows exclusive Extension: password-sharing & emergency-access.
 
 
 
